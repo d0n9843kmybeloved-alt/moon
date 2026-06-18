@@ -24,4 +24,6 @@ open up to me anytime, vent it out, it's not good to bottle it all up!
 regarding this, apologies if some questions may seem offensive, e.g. if you're going through relationship problems,
 i may ask things about context, but it's okay if you don't wish to tell me!
 
-anyways, bye bye! i hope we get along well!
+
+
+<img width="479" height="640" alt="image" src="https://github.com/user-attachments/assets/cb792699-bcf6-4467-aa54-b52f1327d586" />
