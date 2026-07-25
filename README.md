@@ -25,5 +25,6 @@ regarding this, apologies if some questions may seem offensive, e.g. if you're g
 i may ask things about context, but it's okay if you don't wish to tell me!
 
 
+<img width="736" height="536" alt="image" src="https://github.com/user-attachments/assets/3bcbdc06-f06c-4601-9a70-6ccaed864e5d" />
 
-<img width="479" height="640" alt="image" src="https://github.com/user-attachments/assets/cb792699-bcf6-4467-aa54-b52f1327d586" />
+
